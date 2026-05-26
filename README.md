@@ -8,7 +8,5 @@ Evil? Hmmmmmm.....No!
 <p align="center">
 I am not actually lgbtq+phobic, I joke.
 
-DNI: T.R.A.S.H, srs LGBTQ+phobic, Pro/Com/Darkship, "Ship and let ship" people.
-
-I can be apathetic, no I'm not sorry for it.
+Working on Carrd.
 </p>
