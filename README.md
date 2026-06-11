@@ -7,8 +7,11 @@ Evil? Hmmmmmm.....No!
 
 <p align="center">
 I am not actually lgbtq+phobic, I joke.
+  
 　🟢 - Interaction's fine but I'm also mean
+ 
 　🌙 - I'm probably AFK or something
+ 
 　⛔ - Do not bother unless we're friends
 </p>
 
